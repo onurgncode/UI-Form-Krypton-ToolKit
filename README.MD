@@ -1,0 +1,1 @@
+![1.Görsel](https://drive.google.com/file/d/1KY9mLehJr6f18sspD0kIZ1e99VTRNUUg/view)
